@@ -6,6 +6,7 @@ draft: false
 
 <h3>What are $99 dentures?</h3>
 <p>$99 dentures are a great option for those who are looking for an affordable way to improve their smile. There are many different types of $99 dentures available, so it is important to speak with a dental professional to determine which option is best for you. Some of the most popular types of $99 dentures include:</p>
+<a href="https://ibb.co/gFyFyGs"><img src="https://i.ibb.co/LhShSM4/Dentures.jpg" alt="Dentures" border="0"></a>
 <p><strong>Full Dentures:</strong></p>
 <p>Full dentures are a good option for those who are missing all of their natural teeth. Full dentures are made to fit securely over the gums, and they are held in place with a denture adhesive. Full dentures can be removed for cleaning, and they should be replaced every 5-7 years.</p>
 <p><strong>Partial Dentures:</strong></p>
