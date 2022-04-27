@@ -6,6 +6,7 @@ draft: false
 
 <h3><strong>What are dental health and dentures?</strong></h3>
 <p>Dental health is important for many reasons. It helps to keep your mouth and teeth clean, prevents bad breath, and can help to prevent gum disease. Dentures can also help to improve your appearance and boost your self-esteem.</p>
+<img src="https://i.ibb.co/HVbwYcP/pexels-oleg-magni-925288.jpg" alt="pexels-oleg-magni-925288" border="0">
 <p>Dental health is important for keeping your mouth clean and preventing bad breath. It is also important for preventing gum disease. Gum disease is a condition where the gums become inflamed and can bleed easily. If left untreated, gum disease can lead to tooth loss.</p>
 <p>Dentures are artificial teeth that are used to replace missing teeth. They can be made from a variety of materials, including porcelain, acrylic, or metal. Dentures can be partial or full. Partial dentures are used to replace a few missing teeth, while full dentures are used to replace all of the teeth in a row.</p>
 <p>Dentures can be a great way to improve your appearance and boost your self-esteem. They can also help to improve your oral health. Dentures can help to prevent gum disease and keep your mouth clean.</p>
