@@ -6,7 +6,7 @@ draft: false
 
 <h3><strong>Introduce the problem of seniors not being able to afford dentures.</strong></h3>
 <p>The problem of seniors not being able to afford dentures is one that is often overlooked. Many seniors are on a fixed income and cannot afford the high cost of dentures.</p>
-
+<img src="https://i.ibb.co/LhShSM4/Dentures.jpg" alt="Dentures" border="0">
 <p>This can lead to seniors not being able to eat properly, not being able to socialize, and not being able to live a full and active life. There are a few ways that this problem can be solved. One way is for the government to provide a dental care program for seniors.</p>
 <p>Another way is for charities to provide dentures for seniors who cannot afford them. And finally, people can donate money to help seniors pay for their dentures. Whatever the solution, it is important that the problem of seniors not being able to afford dentures is addressed so that seniors can live a full and active life.</p>
 <h3><br /><strong>Idea of free dentures for seniors.</strong></h3>
