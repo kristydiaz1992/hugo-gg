@@ -1,4 +1,4 @@
-baseURL = "https://government-grant.vercel.app/"
+baseURL = "https://dentures.vercel.app/"
 languageCode = "en-us"
 title = "Dentures: An Overview"
 theme = "ananke"
