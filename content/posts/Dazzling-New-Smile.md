@@ -7,6 +7,7 @@ draft: false
 <h3><strong>Cosmetic dentistry can give you the smile you always wanted.</strong></h3>
 <p>A great smile is one of the first things people notice about you. Whether you&rsquo;re meeting someone for the first time or catching up with old friends, your smile is one of the first things they&rsquo;ll see. And if you&rsquo;re not happy with your smile, it can have a negative impact on your self-esteem and the way you interact with others.</p>
 <p>Cosmetic dentistry can give you the smile you always wanted. Whether you&rsquo;re looking to get rid of stained or yellow teeth, close gaps, or simply want to improve the overall appearance of your smile, cosmetic dentistry can help.</p>
+<img src="https://i.ibb.co/Yf0LW9n/pexels-pixabay-52527.jpg" alt="pexels-pixabay-52527" border="0">
 <p>There are a number of different cosmetic dentistry procedures that can be used to achieve the results you want. Teeth whitening is one of the most popular procedures, as it can quickly and easily brighten your smile. If you have gaps in your teeth, bonding or veneers may be an option. And if you have misaligned teeth, clear braces can help give you the straight, beautiful smile you&rsquo;ve always wanted.</p>
 <p>No matter what your cosmetic dentistry goals are, there are options available to help you achieve them. So if you&rsquo;re ready to take the first step towards a more confident, beautiful smile, contact a cosmetic dentist in your area to learn more about your options.</p>
 <h3><strong>You can achieve amazing results with cosmetic dentistry.</strong></h3>
