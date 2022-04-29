@@ -1,6 +1,6 @@
 ---
-title: 'Denture Relining: What You Need to Know '
-date: 2022-04-28T11:12:01+05:00
+title: 'How To Take Care Of Dentures?'
+date: 2022-04-28T12:20:01+05:00
 draft: false
 ---
 
