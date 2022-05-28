@@ -9,6 +9,8 @@ draft: false
 <img src="https://i.ibb.co/LhShSM4/Dentures.jpg" alt="Dentures" border="0">
 <p>This can lead to seniors not being able to eat properly, not being able to socialize, and not being able to live a full and active life. There are a few ways that this problem can be solved. One way is for the government to provide a dental care program for seniors.</p>
 <p>Another way is for charities to provide dentures for seniors who cannot afford them. And finally, people can donate money to help seniors pay for their dentures. Whatever the solution, it is important that the problem of seniors not being able to afford dentures is addressed so that seniors can live a full and active life.</p>
+<p>You may also be able to get help from the federal government. The Medicaid program provides dental coverage for low-income people. You can learn more about Medicaid and other <a href="https://marilynsfalsies.com/dental-implant-grants/">government grants for dental implants</a> that offer dental coverage on the website of the U.S. Department of Health and Human Services.
+</p>
 <h3><br /><strong>Idea of free dentures for seniors.</strong></h3>
 <p>According to a report by the National Institute of Dental and Craniofacial Research, seniors are more likely than any other age group to have lost all of their natural teeth.</p>
 <p>Although dentures can be expensive, there are a number of programs that provide free or low-cost dentures to seniors. One such program is the Senior Dental Assistance Program, which is administered by the National Institute on Aging. This program provides free dental care to seniors who meet certain income and asset guidelines.</p>
