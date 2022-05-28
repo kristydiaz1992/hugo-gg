@@ -36,6 +36,10 @@ draft: false
 <p>6. Do not use your teeth to hold onto your dentures.</p>
 <p>7. Do not use harsh toothpastes or cleaners on your dentures.</p>
 <p>8. Do not smoke. Smoking can stain your dentures and cause other problems.</p>
+<br>
+<p>
+There are many dentists that offer free or low-cost <a href="https://dentures.vercel.app/posts/free-dentures-for-seniors/">dental care for seniors citizens</a>. One way to find these dentists is to search online for "free dentures for seniors near me." You may also want to check with your local dental society or the American Dental Association for a list of dentists in your area who offer free or low-cost dental care for seniors.
+</p> 
 <div>
 <h4><strong>Conclusion</strong></h4>
 </div>
