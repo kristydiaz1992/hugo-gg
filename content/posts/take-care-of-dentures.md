@@ -11,7 +11,7 @@ draft: false
 <p>Dentures are custom-made replacements for missing teeth. They are made to closely resemble your natural teeth and can enhance the appearance of your smile. Dentures are also used to restore chewing function and support the facial muscles.</p>
 <p>If you are considering dentures, it is important to consult with a dentist to determine if they are the right solution for you. Dentures are not right for everyone and your dentist can help you to make the best decision for your smile.</p>
 <b>Pro Tip:</b>
-<p>If you have a denture that fits well but has become loose over time, you may benefit from a <a href="https://dentures.vercel.app/posts/take-care-of-dentures/">denture relining</a>. A relining involves adding more material to the base of your denture so that it fits snugly against your gums. This can help improve the fit of your denture and make it more comfortable to wear.</p>
+<p>If you have a denture that fits well but has become loose over time, you may benefit from a <a href="https://dentures.vercel.app/posts/what-is-a-denture-reline/">denture relining</a>. A relining involves adding more material to the base of your denture so that it fits snugly against your gums. This can help improve the fit of your denture and make it more comfortable to wear.</p>
 <h3><strong>How to take care of dentures</strong></h3>
 <p>Proper denture care is important to maintaining healthy gums and preventing bad breath. Here are a few tips on how to take care of your dentures:</p>
 <p>1. Brush your dentures at least once a day. Use a soft-bristled toothbrush and non-abrasive toothpaste.</p>
